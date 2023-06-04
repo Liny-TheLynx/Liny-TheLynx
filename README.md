@@ -2,13 +2,15 @@
 
 ## Quick description
 
-Cyan Lynx is my code name. I never reveal my real face or name.
+🎭 Cyan Lynx is my code name. I never reveal my real face or name.
 
-Just call me Liny for a easier understanding.
+😺 Just call me Liny for a easier understanding.
 
-I am an artist, designer, musician, writer, gamer, influencer, secretary... Many things.
+👔 I am an artist, designer, musician, writer, gamer, influencer, secretary... Many things.
 
-Also, I am a boy.
+🍎 I am colorblind, but I am trained to know the colors.
+
+♂️ I am a boy.
 
 ## Social links
 
