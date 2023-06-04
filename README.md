@@ -2,6 +2,8 @@
 
 ## Quick description
 
+Cyan Lynx is my code name. I never reveal my real face or name.
+
 Just call me Liny.
 
 I am an artist, designer, musician, writer, gamer, influencer... Many things.
