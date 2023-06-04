@@ -8,6 +8,8 @@ Just call me Liny for a easier understanding.
 
 I am an artist, designer, musician, writer, gamer, influencer, secretary... Many things.
 
+Also, I am a boy.
+
 ## Social links
 
 - Twitter: https://twitter.com/linythelynx
