@@ -8,7 +8,7 @@
 
 😺 Just call me Liny for a easier understanding.
 
-✅ You can just email ``linythelynx@gmail.com`` or chat with ``Cyan Lynx#3715`` on Discord to ask questions, suggest things or just talk with me if you want to.
+✅ You can just email ``linythelynx@gmail.com`` or chat with ``Cyan Lynx#3715`` on Discord to ask questions, suggest things or just chat with me if you want to.
 
 👔 I am an artist, designer, musician, writer, gamer, influencer, secretary... Many things.
 
