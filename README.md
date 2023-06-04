@@ -4,9 +4,9 @@
 
 Cyan Lynx is my code name. I never reveal my real face or name.
 
-Just call me Liny.
+Just call me Liny for a easier understanding.
 
-I am an artist, designer, musician, writer, gamer, influencer... Many things.
+I am an artist, designer, musician, writer, gamer, influencer, secretary... Many things.
 
 ## Social links
 
@@ -17,4 +17,4 @@ I am an artist, designer, musician, writer, gamer, influencer... Many things.
 - GitHub: https://github.com/Liny-TheLynx
 - Devian Art: https://www.deviantart.com/linythelynx
 - Instagram: https://www.instagram.com/linythelynx/
-- **BETA** Discord Server https://discord.gg/Tp45tQG6 
+- **BETA (It's recommended to not enter, due to unstability)** Discord Server https://discord.gg/Tp45tQG6 
