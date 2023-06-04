@@ -12,11 +12,15 @@ Also, I am a boy.
 
 ## Social links
 
-- Twitter: https://twitter.com/linythelynx
-- YouTube: https://www.youtube.com/@CyanLynx
-- Twitch: https://www.twitch.tv/linythelynx
-- Reddit: https://www.reddit.com/user/Liny_theLynx
-- GitHub: https://github.com/Liny-TheLynx
-- Devian Art: https://www.deviantart.com/linythelynx
-- Instagram: https://www.instagram.com/linythelynx/
-- **BETA (It's recommended to not enter, due to unstability)** Discord Server https://discord.gg/Tp45tQG6 
+- 🐦 Twitter: ``@linythelynx`` https://twitter.com/linythelynx
+- ▶️ YouTube: ``@CyanLynx`` https://www.youtube.com/@CyanLynx
+- 🎮 Twitch: ``linythelynx`` https://www.twitch.tv/linythelynx
+- 🤖 Reddit: ``u/Liny_theLynx`` https://www.reddit.com/user/Liny_theLynx
+- 😺 GitHub: ``Liny-TheLynx`` https://github.com/Liny-TheLynx
+- 🎨 Devian Art: ``LinyTheLynx`` https://www.deviantart.com/linythelynx
+- 🤳 Instagram: ``@linythelynx`` https://www.instagram.com/linythelynx/
+- 💬 Discord: ``Cyan Lynx#3715``
+
+## Other links
+
+- **BETA (It's recommended to not enter, due to the lack of members and the fact it's not complete already)** Discord Server https://discord.gg/Tp45tQG6 
