@@ -17,3 +17,4 @@ I am an artist, designer, musician, writer, gamer, influencer... Many things.
 - GitHub: https://github.com/Liny-TheLynx
 - Devian Art: https://www.deviantart.com/linythelynx
 - Instagram: https://www.instagram.com/linythelynx/
+- **BETA** Discord Server https://discord.gg/Tp45tQG6 
