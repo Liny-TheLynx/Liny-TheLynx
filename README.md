@@ -1,10 +1,14 @@
 # I am Cyan Lynx.
 
-## Quick description
+<br>
+
+## ⏩ Quick description
 
 🎭 Cyan Lynx is my code name. I never reveal my real face or name.
 
 😺 Just call me Liny for a easier understanding.
+
+✅ You can just email ``linythelynx@gmail.com`` or chat with ``Cyan Lynx#3715`` on Discord to ask questions, suggest things or just talk with me if you want to.
 
 👔 I am an artist, designer, musician, writer, gamer, influencer, secretary... Many things.
 
@@ -12,7 +16,7 @@
 
 ♂️ I am a boy.
 
-## Social links
+## 🔗 Social links
 
 - 🐦 Twitter: ``@linythelynx`` https://twitter.com/linythelynx
 - ▶️ YouTube: ``@CyanLynx`` https://www.youtube.com/@CyanLynx
