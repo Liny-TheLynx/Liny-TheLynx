@@ -18,6 +18,8 @@
 
 ## 🔗 Social links
 
+- 🔗 Linktree ``CyanLynx`` https://linktr.ee/CyanLynx
+
 - 🐦 Twitter: ``@linythelynx`` https://twitter.com/linythelynx
 - ▶️ YouTube: ``@CyanLynx`` https://www.youtube.com/@CyanLynx
 - 🎮 Twitch: ``linythelynx`` https://www.twitch.tv/linythelynx
