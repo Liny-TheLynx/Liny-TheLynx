@@ -20,7 +20,7 @@
 
 - 🔗 Linktree (All my links) ``CyanLynx`` https://linktr.ee/CyanLynx
 
-- New Discord Server: https://discord.gg/Tp45tQG6 
+- 👪 New Discord Server: ``Cyan Lynx's Discord Server`` https://discord.gg/Tp45tQG6 
 
 - 💬 Discord: ``Cyan Lynx#3715``
 
