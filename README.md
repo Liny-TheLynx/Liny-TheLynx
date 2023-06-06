@@ -16,7 +16,7 @@
 
 ♂️ I am a boy.
 
-## 🔗 Social links
+## 🔗 Social links/info
 
 - 🔗 Linktree (All my links) ``CyanLynx`` https://linktr.ee/CyanLynx
 
