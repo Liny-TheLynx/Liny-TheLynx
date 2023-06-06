@@ -20,8 +20,10 @@
 
 - 🔗 Linktree (All my links) ``CyanLynx`` https://linktr.ee/CyanLynx
 
+- New Discord Server: https://discord.gg/Tp45tQG6 
+
 - 💬 Discord: ``Cyan Lynx#3715``
 
 ## Other links
 
-- **BETA (It's recommended to not enter, due to the lack of members and the fact it's not complete already)** Discord Server https://discord.gg/Tp45tQG6 
+- Nothing :/
