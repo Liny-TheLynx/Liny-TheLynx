@@ -18,7 +18,7 @@
 
 ## Lynx-Y
 
-👔 Lynx-Y is my art brand. Here you can order or buy almost naany art.
+👔 Lynx-Y is my art brand. Here you can order or buy almost any art you want from us.
 
 🌐 Website: https://sites.google.com/view/lynx-y/
 
