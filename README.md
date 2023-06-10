@@ -16,6 +16,18 @@
 
 ♂️ I am a boy.
 
+## Lynx-Y
+
+👔 Lynx-Y is my art brand.
+
+🌐 Website: https://sites.google.com/view/lynx-y/
+
+ℹ️ About us: https://sites.google.com/view/lynx-y/about-us
+
+🧑‍🎨 Our artists: https://sites.google.com/view/lynx-y/artists
+
+💵 Buy/order art: https://sites.google.com/view/lynx-y/buyorder
+
 ## 🔗 Social links/info
 
 - 🔗 Linktree (All my links) ``CyanLynx`` https://linktr.ee/CyanLynx
