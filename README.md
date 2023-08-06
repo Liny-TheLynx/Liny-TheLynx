@@ -16,6 +16,8 @@
 
 ♂️ I am a boy.
 
+⛏️ I made a Minecraft Server called "Pixel Odyssey SMP" with a discord server (https://discord.gg/HyrVEatDyX). Does it counts someway?
+
 ## Lynx-Y
 
 👔 Lynx-Y is my art brand. Here you can order or buy almost any art you want from us.
@@ -32,9 +34,11 @@
 
 - 🔗 Linktree (All my links) ``CyanLynx`` https://linktr.ee/CyanLynx
 
-- 👪 New Discord Server: ``Cyan Lynx's Discord Server`` https://discord.gg/Tp45tQG6 
+- 💬 Discord username: ``Cyan Lynx#3715``
 
-- 💬 Discord: ``Cyan Lynx#3715``
+- ⛏️ Pixel Odyssey SMP Discord Server ``https://discord.gg/HyrVEatDyX``
+
+- 👪 New Discord Server: ``Cyan Lynx's Discord Server`` https://discord.gg/Tp45tQG6 
 
 ## Other links
 
