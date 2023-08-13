@@ -8,6 +8,8 @@
 
 😺 Just call me Liny for a easier understanding.
 
+🗣️ My pronouns are he/him/his and some people call me it/is/its.
+
 ✅ You can just email ``linythelynx@gmail.com`` or chat with ``Cyan Lynx#3715`` on Discord to ask questions, suggest things or just chat with me if you want to! I will try to answer!
 
 👔 I am an artist, designer, musician, writer, gamer, influencer, secretary... A "creative professional".
@@ -18,17 +20,17 @@
 
 ⛏️ I made a Minecraft Server called "Pixel Odyssey SMP" with a discord server (https://discord.gg/HyrVEatDyX). Does it counts someway?
 
-## Lynx-Y
+## QX Studio
 
 👔 Lynx-Y is my art brand. Here you can order or buy almost any art you want from us.
 
-🌐 Website: https://sites.google.com/view/lynx-y/
+🌐 Website: https://sites.google.com/view/qx-studio
 
-ℹ️ About us: https://sites.google.com/view/lynx-y/about-us
+ℹ️ About us: https://sites.google.com/view/qx-studio/about-us
 
-🧑‍🎨 Our artists: https://sites.google.com/view/lynx-y/artists
+🧑‍🎨 Our designers: https://sites.google.com/view/qx-studio/designers
 
-💵 Buy/order art: https://sites.google.com/view/lynx-y/buyorder
+💵 Buy/order art: https://sites.google.com/view/qx-studio/buyorder
 
 ## 🔗 Social links/info
 
