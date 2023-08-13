@@ -18,11 +18,13 @@
 
 ♂️ I am a boy.
 
+🏢 I kind of made a brand. Well; see it by yourself at <https://sites.google.com/view/qx-studio>.
+
 ⛏️ I made a Minecraft Server called "Pixel Odyssey SMP" with a discord server (https://discord.gg/HyrVEatDyX). Does it counts someway?
 
 ## QX Studio
 
-👔 Lynx-Y is my art brand. Here you can order or buy almost any art you want from us.
+👔 QX Studio is my design brand. Here you request things to our designers.
 
 🌐 Website: https://sites.google.com/view/qx-studio
 
