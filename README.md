@@ -69,7 +69,7 @@ Are you a furry?
 
 Where is your favorite particle accelerator located at?
 
-Why are you ask me this?
+Why are you asking me this?
 
 <br/>
 
