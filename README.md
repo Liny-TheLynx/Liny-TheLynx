@@ -102,7 +102,7 @@ I don't even knew about it.
 
 - 🔗 Linktree (All my links) ``CyanLynx`` https://linktr.ee/CyanLynx
 
-- 💬 Discord username: ``Cyan Lynx#3715``
+- 💬 Discord username: ``linythelynx`` (previously known as "Cyan Lynx#3715")
 
 - ⛏️ Pixel Odyssey SMP Discord Server ``https://discord.gg/HyrVEatDyX``
 
