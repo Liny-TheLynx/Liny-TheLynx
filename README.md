@@ -29,48 +29,58 @@
 <br/>
 
 Are you an AI?
+
 Yes. I am an incredibly advanced "A. I." precisely made by extremely intelligent people with the most difficult calculation on mathematics to know how could a dumb like me work.
+
 JK. I am not an AI. Or am I?
 
 <br/>
 
 Why do you confuse me?
+
 Because you try to understand what I say better when you are confused.
 
 <br/>
 
 Why are you always smiling?
+
 I am not **always** smiling, but I smile even when I am sad, so I know why you are asking me this question.
 So; my secret is: I just smile. What did you expected?!
 
 <br/>
 
 Where are you from?
+
 *Laughs* Nowhere.
 
 <br/>
 
 What is your native language?
+
 Don't you know? Perfect.
 
 <br/>
 
 Are you a furry?
+
 **No!** Why people still asking?!
 
 <br/>
 
 Where is your favorite particle accelerator located at?
+
 Why are you ask me this?
 
 <br/>
 
 Of all of the neutrino detectors, which one do you think is the most efficient?
+
 What is a **"neutrino detector"**?!
 
 <br/>
 
 What do you think about the up-coming Australian Climate Summit?
+
 I don't even knew about it.
 
 <br/>
