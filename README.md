@@ -38,8 +38,7 @@ Because you try to understand what I say better when you are confused.
 
 Why are you always smiling?
 
-I am not **always** smiling, but I smile even when I am sad, so I know why you are asking me this question.
-So; my secret is: I just smile. What did you expected?!
+I am not **always** smiling, but I smile even when I am sad.
 
 <br/>
 
@@ -57,50 +56,13 @@ Don't you know? Perfect.
 
 Are you a furry?
 
-**No!** Why people still asking?!
-
-<br/>
-
-Where is your favorite particle accelerator located at?
-
-Why are you asking me this?
-
-<br/>
-
-Of all of the neutrino detectors, which one do you think is the most efficient?
-
-What is a **"neutrino detector"**?!
-
-<br/>
-
-What do you think about the up-coming Australian Climate Summit?
-
-I don't even knew about it.
-
-<br/>
-
-
-## QX Studio
-
-👔 QX Studio is my design brand. Here you request things to our designers.
-
-🌐 Website: https://sites.google.com/view/qx-studio
-
-ℹ️ About us: https://sites.google.com/view/qx-studio/about-us
-
-🧑‍🎨 Our designers: https://sites.google.com/view/qx-studio/designers
-
-💵 Buy/order art: https://sites.google.com/view/qx-studio/buyorder
+No! Why do people still asking?!
 
 ## 🔗 Social links/info
 
 - 🔗 Linktree (All my links) ``CyanLynx`` https://linktr.ee/CyanLynx
 
 - 💬 Discord username: ``linythelynx`` (previously known as "Cyan Lynx#3715")
-
-- ⛏️ Pixel Odyssey SMP Discord Server ``https://discord.gg/HyrVEatDyX``
-
-- 👪 New Discord Server: ``Cyan Lynx's Discord Server`` https://discord.gg/Tp45tQG6 
 
 ## Other links
 
