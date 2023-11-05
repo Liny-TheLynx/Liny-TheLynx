@@ -16,7 +16,7 @@
 
 🏢 I kind of made a brand. Well; see it by yourself at <https://sites.google.com/view/qx-studio>.
 
-⛏️ I made a Minecraft Server called "Pixel Odyssey SMP" with a discord server (<https://discord.gg/HyrVEatDyX>). Does it counts someway?
+⛏️ I made a small Minecraft Server called "Pixel Odyssey SMP" with a discord server (<https://discord.gg/HyrVEatDyX>). Now it is innactive. Does it counts someway?
 
 ## Frequently asked questions (aka. FAQ)
 
