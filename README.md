@@ -8,15 +8,9 @@
 
 😺 Just call me Liny for a easier understanding.
 
-🗣️ My pronouns are he/him/his and some people call me it/is/its.
-
 ✅ You can just email ``linythelynx@gmail.com`` or chat with ``Cyan Lynx#3715`` on Discord to ask questions, suggest things or just chat with me if you want to! I will try to answer!
 
 👔 I am an artist, designer, musician, writer, gamer, influencer, secretary... A "creative professional".
-
-🍎 I am colorblind, but I am trained to know the colors.
-
-♂️ I am a boy.
 
 🎂 My birthday is March 21.
 
