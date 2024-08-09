@@ -1,14 +1,12 @@
-# I am Cyan Lynx.
+# I am Liny.
 
 <br>
 
 ## ⏩ Quick description
 
-🎭 Cyan Lynx is my code name. I will never reveal my real face or name.
+🎭 Liny/Lin is my code name. I will never reveal my real face or name.
 
-😺 Just call me Liny for a easier understanding.
-
-👔 I am an artist, designer, musician, writer, gamer, secretary... A "creative professional".
+👔 I am a creative person.
 
 🎂 My birthday is March 21.
 
@@ -16,8 +14,10 @@
 
 - 🔗 Linktree (All my links) ``CyanLynx`` https://linktr.ee/CyanLynx
 
-- 💬 Discord username: ``linythelynx`` (previously known as "Cyan Lynx#3715")
+- 💬 Discord username: ``linythelynx``
 
-## Other links
+## Other Info
 
-- Nothing :/
+🐱 Not really a Lynx. Just some kind of cat.
+
+🟨⬜🟪⬛ Non-binary.
